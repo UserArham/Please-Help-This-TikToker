@@ -4,3 +4,6 @@ so this tiktoker is formerly ryans world which drove me crazy a lot and it says 
 
 
 <img width="987" height="300" alt="image" src="https://github.com/user-attachments/assets/edfd5a4b-7dca-4b17-a1f6-1da9a73bf0a7" />
+
+bro is older than me
+I am 14 and he is 15 like bruh STILL MANAGED LOL
